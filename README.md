@@ -1,16 +1,19 @@
-### Hi there 👋
+### 25's orgasmic page🤩💦
 
-<!--
-**25iscool/25iscool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+## what I've made
+- fuck all in terms of coding n shit
+- your mum cream herself ;)
+- your father insecure about his penis size
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+# 💬 Ask me about how to pull mad hoes
+cause you for sure can't pull girls if ur sat
+coding shit all day
+
+
+
+# Social Media shit
+- Youtube : https://www.youtube.com/channel/UCoLL9AJ98AyskO_b6hdao6A
+- Discord : https://discord.gg/YyHCYc86vG or u can just add me using 25__#3594
+- Instagram : https://www.instagram.com/25iscool/
