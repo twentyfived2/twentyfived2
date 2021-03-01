@@ -15,5 +15,5 @@ coding shit all day
 
 # Social Media shit
 - Youtube : https://www.youtube.com/channel/UCoLL9AJ98AyskO_b6hdao6A
-- Discord : https://discord.gg/YyHCYc86vG or u can just add me using 25__#3594
+- Discord : https://discord.gg/YyHCYc86vG or u can just add me using 25__#3136
 - Instagram : https://www.instagram.com/25iscool/
