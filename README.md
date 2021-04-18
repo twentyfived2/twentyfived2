@@ -12,9 +12,4 @@
 - have access to dactyl client
 - have access to editme client
 - bignamer cpvper
-
-
-
-# Social Media shit
-- Youtube : https://www.youtube.com/channel/UCoLL9AJ98AyskO_b6hdao6A
-- Discord : https://discord.gg/YyHCYc86vG or u can just add me using 25__#3136
+- got invited to exhi , ty azurilex :^)
